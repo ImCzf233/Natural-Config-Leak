@@ -1,6 +1,7 @@
 # Natural-Config-Leak
 Leaked by ImCzf#2333 😎😎
 [![bJM8k.png](https://s1.328888.xyz/2022/08/23/bJM8k.png)](https://imgloc.com/i/bJM8k)
+![1661232057393.png](https://img1.imgtp.com/2022/08/23/TKzv2Rvb.png)
 # 雨露主播干了什么?
 
 1、圈钱
