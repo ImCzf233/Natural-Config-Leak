@@ -1,4 +1,4 @@
-# Natural-Condfig-Leak
+# Natural-Config-Leak
 Leaked by ImCzf#2333 😎😎
 [![bJM8k.png](https://s1.328888.xyz/2022/08/23/bJM8k.png)](https://imgloc.com/i/bJM8k)
 # 雨露主播干了什么?
